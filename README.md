@@ -8,7 +8,7 @@
 
 - 💬 Ask me about **C, DSA, ML**
 
-- ⏰ Coding sience **2019**
+- ⏰ Coding since **2019**
 
 - 📫 How to reach me **ben.dvd15@gmail.com**
 
